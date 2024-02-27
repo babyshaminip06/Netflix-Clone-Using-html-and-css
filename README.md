@@ -1,1 +1,1 @@
-# Netflix-Clone-Using-html-and-css
+![image](https://github.com/babyshaminip06/Netflix-Clone-Using-html-and-css/assets/93317774/3b166a13-cb2d-4fc7-a851-bde37787afe5)![image](https://github.com/babyshaminip06/Netflix-Clone-Using-html-and-css/assets/93317774/435f2cf8-50e5-4480-b471-49c9856f3c94)
